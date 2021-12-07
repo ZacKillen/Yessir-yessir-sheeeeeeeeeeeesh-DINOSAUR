@@ -1,2 +1,3 @@
-# Yessir-yessir-sheeeeeeeeeeeesh-DINOSAUR
-colour
+# PROC18-V3ColorfullTrex
+Colorful Trex
+
